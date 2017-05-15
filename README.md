@@ -5,7 +5,7 @@
 
 - 남은우
 - 원현우
-- 이우
+- 이창우
 - 심원석
 
 [참고 영상](https://www.youtube.com/watch?v=rwGx5KEje4k)
